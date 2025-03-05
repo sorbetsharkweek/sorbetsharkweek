@@ -2,10 +2,10 @@
 
 
 
-https://github.com/user-attachments/assets/acce8bdf-30de-4975-bcbb-8e750e76a8c2
+![](https://files.catbox.moe/12vcrn.gif)
 
 
-^this is the highlight of the repository everything else is just a downward spiral, enjoy nonetheless!
+^this is my son, be nice to him or face my wrath.
 
 ![](https://files.catbox.moe/nn2qv2.png)
 
@@ -23,4 +23,4 @@ I like to sit next to arguing ponies and chime in to "lol" or "hey so, this is c
 
 Of course you can friend request me just please understand that I am in fact an adult and will be wary around you unless I can find your age or age range somewhere, kids are crazy these days I'm sure you understand.
 
-![](https://files.catbox.moe/12vcrn.gif)
+
