@@ -6,7 +6,7 @@ https://github.com/user-attachments/assets/28d26726-dac9-4a6d-82b0-fb0cf20c4553
 
 ^this is the highlight of the repository everything else is just a downward spiral, enjoy nonetheless!
 
-[![4rjz8r]([https://github.com/user-attachments/assets/69b98022-390c-489d-bbdd-ad5fcdbf46ac](https://files.catbox.moe/nn2qv2.png))](https://files.catbox.moe/nn2qv2.png)
+![](https://files.catbox.moe/nn2qv2.png)
 
 
 Most of what I do on pony.town is sit around and make ponies! Although if you wanna sit and chat I'd be happy to do it from beyond the character customisation screen!!! All hail the J button amirite?
