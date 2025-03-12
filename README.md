@@ -16,8 +16,8 @@ Now you may be asking yourself "Alpine, what's a great guy like you doing on thi
 ![](https://files.catbox.moe/nn2qv2.png)
 
 The spaces where ur most likely to find me are (drum roll please) : docks, sonic and hedgehog both in pg and 18+ and last but not least the south park area(rest in peace our fallen soldier)
-99% of the time I am rocking my Tails pony but when I'm feeling a little daring I will be Tweek or even *gasp* YUJI ITADORI???? That manga ended though so I guess you'll be seeing him less.
-I like to sit next to arguing ponies and chime in to "lol" or "hey so, this is crazy" which is why I frequent the docks obvi. I've never really been in a drama myself however, and I plan to keep it that way.
+99% of the time I am rocking my Silver pony but when I'm feeling a little daring I will be Tweek or even *gasp* NIGHTWING???? That fandom is a little crazy but so am I.
+I like to sit next to arguing ponies and chime in to "lol" or "hey so, this is crazy" which is why I frequent the docks obvi. I've never really been in a drama myself however, and I plan to keep it that way. If I find you even slightly annoying I'm sending you to the corner to think about what you've done, aka 15min hide. :3c
 
 ![](https://files.catbox.moe/nn2qv2.png)
 
